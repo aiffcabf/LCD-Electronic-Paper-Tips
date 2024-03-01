@@ -1,3 +1,2 @@
 # save-eyes-os-youtube-ad
-adv
-lloking for some people eho are able to put an os presentation + links to download as a youtube advertisement 
+looking for some people who are able to put a presentation of this OS + links to download as a youtube advertisement 
